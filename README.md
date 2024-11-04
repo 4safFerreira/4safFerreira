@@ -1,0 +1,6 @@
+- Asaf Ferreira por aqui;
+- HTML, CSS, JavaScript, C e Python são de minha especialidade.
+- Cursando Desenvolvimento de Sistemas na Etec Ermelinda Gianinni Teixeira;
+- Procuro serviço nas áreas de Front e Back End.
+- Contato: 4saf.ferreira@gmail.com
+- Trabalho rápido e eficiente;
